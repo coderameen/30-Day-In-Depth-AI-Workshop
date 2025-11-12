@@ -1,0 +1,1 @@
+# 30-Day-In-Depth-AI-Workshop
